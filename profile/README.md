@@ -4,5 +4,5 @@ lub chcesz przekazać swój rower do przeglądu i napraw, a może nawet szukasz 
 wszystko to i nie tylko znajdziesz w NSR!\
 Serdecznie zapraszamy na naszą stronę internetową - https://nsrsport.pl - czy do sklepów stacjonarnych w Polkowicach, Lubinie, Głogowie i Zagórzu.
 
-W sprawach technicznych proszę skontaktować się z osobą za to odpowiedzialną (jeśli już wiesz kto to jest), w innym przypadku zapraszam do wiadomości prywatnych bądź na polkowice@nsrsport.pl
+W sprawach technicznych proszę skontaktować się z osobą za to odpowiedzialną (jeśli już wiesz kto to jest), w innym przypadku zapraszam do wiadomości prywatnych bądź na polkowice@nsrsport.pl\
 Jeśli będziemy zainteresowani, odpowiemy w przeciągu kilku dni
